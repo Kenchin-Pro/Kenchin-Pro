@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kenchin-Pro
-- 👀 I’m interested in Video Games.
+- video games, discord bot... 
 
 
 <!---
